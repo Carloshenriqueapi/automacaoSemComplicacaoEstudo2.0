@@ -1,0 +1,1 @@
+# automacaoSemcomplicacaoEstudo2.0
